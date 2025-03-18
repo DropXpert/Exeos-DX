@@ -1,4 +1,7 @@
+
 # Subscribe Telegram for guide and Commands all Scripts are free there
+* ___________________________________________________________
+* Join EXEOS here : https://app.exeos.network?referralCode=REF6DBEQ60I
 # Features
 * Auto referral 
 * Auto farming 
